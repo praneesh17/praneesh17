@@ -9,7 +9,7 @@ Certainly! Here's a customized version of your profile description for a full-st
 
 🤝 I’m always open to collaborating on innovative projects that push the boundaries of technology and make a positive impact. Let's team up and bring our ideas to life!
 
-📫 You can reach me via email at [your_email@example.com] or connect with me on LinkedIn.
+📫 You can reach me via email at [rajapraneesh5@gmail.com] or connect with me on LinkedIn.
 
 😄 Pronouns: He/Him
 
